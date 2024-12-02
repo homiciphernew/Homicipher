@@ -1,4 +1,4 @@
-# 🔍 Homicipher APK 4.2.9 (Horror Game) Latest For Android 2025 🎮
+# Homicipher APK 4.2.9 (Horror Game) Latest For Android 2025
 
 If you're searching for a game that challenges your intellect while immersing you in a gripping storyline, **Homicipher APK** is your answer. This Android-exclusive puzzle game has captivated players with its unique combination of cryptic puzzles, detective storytelling, and immersive visuals. Whether you're a fan of logic challenges or just looking for a game with a dark and mysterious vibe, Homicipher APK is a game you shouldn't miss.
 
